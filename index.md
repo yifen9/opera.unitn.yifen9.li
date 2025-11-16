@@ -15,7 +15,7 @@ More about me: [yifen9.li](https://yifen9.li)
 
 ## And by the way ...
 
-I have a Canon TS7450i printer. I can provide you copying, printing and scanning, for free.
+I have a Canon TS7450i printer. I can provide you copying, printing and scanning, **for free**.
 
 If you want, click the links below and fill in the template to send me an E-mail, and I will do the job for you:
 
