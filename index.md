@@ -1,6 +1,5 @@
 ---
 title: Li's Printer Service
-description: at UniOpera
 ---
 
 ## Hi
